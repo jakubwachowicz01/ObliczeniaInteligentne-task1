@@ -1,0 +1,1 @@
+# ObliczeniaInteligentne-task1
